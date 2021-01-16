@@ -8,3 +8,9 @@ Thank you for reading
 
 
 -  January 4, 2021
+
+
+
+January 16. 2:45 a.m.
+
+So i am leaning a lot more. i have made my switch over to CodeCademy and im on my way to beginning my own project. looking at a clock maybe?
